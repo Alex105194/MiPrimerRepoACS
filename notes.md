@@ -1,0 +1,1 @@
+Me gusta el deporte, escuchar música, prender cosas nuevas y jugar videojuegos. También disfruto del cine, la tecnología y descubrir curiosidades. En mi tiempo libre me gusta explorar nuevas ideas y mantenerme al día con las novedades.
